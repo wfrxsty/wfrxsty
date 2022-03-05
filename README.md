@@ -1,3 +1,10 @@
-🥶- I am learnig lua\n
-🌟- Owner of FrxWare\n
-⚜️-my only discord is Frxsty#9100\n
+🥶- I am learnig lua
+
+
+
+🌟- Owner of FrxWare
+
+
+
+
+⚜️-my only discord is Frxsty#9100
