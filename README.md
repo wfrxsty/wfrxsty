@@ -1,4 +1,4 @@
-🥶- I am learnig lua
+🥶- I mid lua learner
 
 
 
@@ -7,4 +7,4 @@
 
 
 
-⚜️-my only discord is Frxsty#9100
+⚜️-discord : .gg/
